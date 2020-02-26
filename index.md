@@ -1,6 +1,7 @@
 
 # Señores y Señoritas välkomna till **Cena De La Familia!**
-Den här gången gör vi det lite annorlunda då fokusen kommer att läggas på lek och skoj med barnen. 
+Den här gången gör vi det lite annorlunda då fokusen kommer att läggas på lek och skoj med fokus på barnen.
+
 Ett par aktiviteter kommer att planeras in för både kidsen och vuxna så kom med öppet sinne och leende leppar!
 Efter halva dagen blir det gottkäk, goda drinkar och därefter bio för småttingarna. 
 Kvällens aktivitet, dvs när man lyckats nanna barnen beger vi oss mot en efterlängtad drink till och sällskapsspel.
