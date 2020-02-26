@@ -8,13 +8,13 @@ Kvällens aktivitet, dvs när kidsen nannat blir det högtid att avnjuta en efte
 
 ![LaFamilia](https://rullavagn.nu/blogg/wp-content/uploads/2019/05/food-fight.gif)
 
-Festen börjar strax innan 14:00 på lördagen den 14e mars.
+Festen börjar strax innan 14:00.
 
 ### Detaljerat schema
 Tid | Aktivitet
 ------------ | -------------
-13:45 - 14:00	| Inställesetid
-14:10 - 14:35	| Las Fika
+13:45 - 14:00	| Atención
+14:10 - 14:35	| Des Fruto
 14:40 - 15:10 | Mini Cojones
 15:20 - 16:00	| Mini Disco
 16:10 - 16:30	| Las fika & gelato
@@ -35,3 +35,17 @@ Adress: Västra Storgatan 12, 553 15 Jönköping
 * Ta gärna med barnens bandy klubbor eller mindre fotbollar.
 * Mat beställs på plats.
 * Bring your own Mezmezat och drinkar.
+
+### Nedan finner ni ett svenskt schema för er som inte kan Ethpaniol
+Tid | Aktivitet
+------------ | -------------
+13:45 - 14:00	| Inställesetid
+14:10 - 14:35	| Fruktfika
+14:40 - 15:10 | Mini Bowling
+15:20 - 16:00	| Mini Disco
+16:10 - 16:30	| Fika & Glass
+16:45 - 17:15	| Kurragömma
+17:15 - 18:00	| Pyssel & målning
+18:00 - 19:00	| Middag
+19:00 - 20:30	| Barnbio
+21:00 - 00:00	| Sällskapsspel
