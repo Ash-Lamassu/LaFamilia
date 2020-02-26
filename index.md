@@ -4,8 +4,7 @@ Den här gången gör vi det lite annorlunda då fokusen kommer att läggas på 
 
 Ett par aktiviteter kommer att planeras in för både kidsen och de vuxna så kom med öppet sinne och leende läppar!
 
-På grund av att lokalen saknar köksutrustning kommer det att planerat hämtning av mat.
-Kvällens aktivitet, dvs när kidsen nannat blir det högtid att avnjuta en efterlängtad drink till sällskapsspel.
+Kvällens aktivitet, dvs när kidsen nannat består av en efterlängtad drink till sällskapsspel.
 
 ![LaFamilia](https://rullavagn.nu/blogg/wp-content/uploads/2019/05/food-fight.gif)
 
