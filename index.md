@@ -36,7 +36,7 @@ Adress: Västra Storgatan 12, 553 15 Jönköping
 * Mat beställs på plats.
 * Bring your own Mezmezat och drinkar.
 
-### Nedan finner ni ett svenskt schema för er som inte kan Ethpaniol
+### För er som inte förstår Ethpanio finner ni aktivitetslistan på svenska nedan
 Tid | Aktivitet
 ------------ | -------------
 13:45 - 14:00	| Inställesetid
