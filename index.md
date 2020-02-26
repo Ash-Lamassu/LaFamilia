@@ -8,7 +8,8 @@ Kvällens aktivitet, dvs när man lyckats nanna barnen beger vi oss mot en efter
 
 ![LaFamilia](https://rullavagn.nu/blogg/wp-content/uploads/2019/05/food-fight.gif)
 
-Vi träffas strax innan 14:00 på lördagen den 14e mars.
+Festen börjar strax innan 14:00 på lördagen den 14e mars.
+
 ### Detaljerat schema
 Tid | Aktivitet
 ----------- | -----------
