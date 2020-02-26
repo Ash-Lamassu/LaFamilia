@@ -10,7 +10,7 @@ Kvällens aktivitet, dvs när man lyckats nanna barnen beger vi oss mot en efter
 
 Vi träffas strax innan 14:00 på lördagen den 14e mars.
 ### Detaljerat schema
-Tid | Aktivitet |
+| Tid | Aktivitet |
 | ----------- | ----------- |
 | 14:00	| Inställesetid |
 | 14:10 |  14:35	Las Fika |
