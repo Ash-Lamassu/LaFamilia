@@ -44,22 +44,22 @@ Adress: Västra Storgatan 12, 553 15 Jönköping
 * Bring your own Mezmezat och drinkar.
 
 ### För er som inte förstår Ethpaniol finner ni aktivitetslistan nedan på svenska
-13:45-14:00	- Inställesetid
+13:45 - 14:00	--- Inställesetid
 
-14:10-14:35	- Fruktfika
+14:10 - 14:35	--- Fruktfika
 
-14:40-15:10 - Mini Bowlin
+14:40 - 15:10 --- Mini Bowlin
 
-15:20-16:00	- Mini Disc
+15:20 - 16:00	--- Mini Disc
 
-16:10-16:30	- Fika & Glass
+16:10 - 16:30	--- Fika & Glass
 
-16:45-17:15	- Kurragömma
+16:45 - 17:15	--- Kurragömma
 
-17:15-18:00	- Pyssel & målning
+17:15 - 18:00	--- Pyssel & målning
 
-18:00-19:00	- Middag
+18:00 - 19:00	--- Middag
 
-19:00-20:30	- Barnbio
+19:00 - 20:30	--- Barnbio
 
-21:00-00:00	- Sällskapsspel
+21:00 - 00:00	--- Sällskapsspel
