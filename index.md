@@ -1,9 +1,9 @@
 
 # Señores y Señoritas välkomna till **Cena De La Familia!**
 Den här gången gör vi det lite annorlunda då fokusen kommer att läggas på lek och skoj med barnen. 
-
-Ett par aktiviteter kommer att planeras in där både kidsen och de vuxna kan delta.
-Där efter blir det käk och sist men inte minst en efterlängtad drink till dom tröttkörda föräldrarna samt sällskapsspel.
+Ett par aktiviteter kommer att planeras in för både kidsen och vuxna så kom med öppet sinne och leende leppar!
+Efter halva dagen blir det gottkäk, goda drinkar och därefter bio för småttingarna. 
+Kvällens aktivitet, dvs när man lyckats nanna barnen beger vi oss mot en efterlängtad drink till och sällskapsspel.
 
 ![LaFamilia](https://rullavagn.nu/blogg/wp-content/uploads/2019/05/food-fight.gif)
 
