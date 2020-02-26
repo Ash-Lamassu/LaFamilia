@@ -46,7 +46,7 @@ Adress: Västra Storgatan 12, 553 15 Jönköping
 ### För er som inte förstår Ethpaniol finner ni aktivitetslistan nedan på svenska
 13:45 - 14:00	--- Inställesetid
 
-14:10 - 14:35	--- Fruktfika
+14:10 - 14:35	--- Mellanmål
 
 14:40 - 15:10 --- Mini Bowlin
 
