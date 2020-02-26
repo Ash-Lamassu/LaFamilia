@@ -8,7 +8,7 @@ Där efter blir det käk och sist men inte minst en efterlängtad drink till dom
 Vi träffas strax innan 14:00 på lördagen den 14e mars.
 ### Detaljerat schema
 Tid | Aktivitet
------------- | -------------
+- | -
 14:00	| Inställesetid
 14:10 |  14:35	Las Fika
 14:40 | 15:10	Mini Cojones
