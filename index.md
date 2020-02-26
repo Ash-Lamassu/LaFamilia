@@ -13,7 +13,7 @@ Festen börjar strax innan 14:00 på lördagen den 14e mars.
 ### Detaljerat schema
 Tid | Aktivitet
 ----------- | -----------
-14:00	| Inställesetid
+13:45 - 14:00	| Inställesetid
 14:10 - 14:35	| Las Fika
 14:40 - 15:10 | Mini Cojones
 15:20 - 16:00	| Mini Disco
