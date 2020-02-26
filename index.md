@@ -1,5 +1,5 @@
 
-# Señoritas y Señores välkomna till **Cena De La Familia!**
+# Señoritas y Señores välkomna till **Cena De LaFamilia!**
 Den här gången gör vi det lite annorlunda då fokusen kommer att läggas på lek och skoj med barnen.
 
 Ett par aktiviteter kommer att planeras in för både kidsen och de vuxna så kom med öppet sinne och leende läppar!
