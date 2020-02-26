@@ -3,8 +3,8 @@
 Den här gången gör vi det lite annorlunda då fokusen kommer att läggas på lek och skoj med barnen.
 
 Ett par aktiviteter kommer att planeras in för både kidsen och de vuxna så kom med öppet sinne och leende läppar!
-Efter halva dagen blir det gott käk, goda drinkar och därefter bio för småttingarna. 
-Kvällens aktivitet, dvs när man lyckats nanna barnen beger vi oss mot en efterlängtad drink till och sällskapsspel.
+Efter halva dagen blir det gott käk och därefter bio för småttingarna. 
+Kvällens aktivitet, dvs när kidsen nannat blir det högtid att avnjuta en efterlängtad drink till sällskapsspel.
 
 ![LaFamilia](https://rullavagn.nu/blogg/wp-content/uploads/2019/05/food-fight.gif)
 
