@@ -14,15 +14,15 @@ Festen börjar strax innan 14:00 på lördagen den 14e mars.
 Tid | Aktivitet
 ----------- | -----------
 14:00	| Inställesetid
-14:10 |  14:35	Las Fika
-14:40 | 15:10	Mini Cojones
-15:20 | 16:00	Mini Disco
-16:10 | 16:30	Las fika & gelato
-16:45 | 17:15	De la Kurragömma
-17:15 | 18:00	De la pyssel & målning
-18:00 | 19:00	Cesna de la Familia
-19:00 | 20:30	El Cinema del niños
-21:00 | 00:00	La Casa del Papel
+14:10 - 14:35	| Las Fika
+14:40 - 15:10 | Mini Cojones
+15:20 - 16:00	| Mini Disco
+16:10 - 16:30	| Las fika & gelato
+16:45 - 17:15	| De la Kurragömma
+17:15 - 18:00	| De la pyssel & målning
+18:00 - 19:00	| Cesna de la Familia
+19:00 - 20:30	| El Cinema del niños
+21:00 - 00:00	| La Casa del Papel
 
 ### Tid och plats
 Dag: 14e mars
